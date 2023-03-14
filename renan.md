@@ -1,0 +1,2 @@
+Eu do Futuro aki estamos quebrando a cabeça no começo do curso de programaçao, sei que vai ser dificil mais sei que vamos vencer esta etapa, nada e impossivel quando agente quer entao to escrevendo essa mensagem aki para fala que vai valer a pena passa tudo por isso e voce vai me da a certeza de tudo isso que estamos passando agora vamos vencer pois sabemos que estamos em um proposito que deus tem para gente.
+14/03/2023
